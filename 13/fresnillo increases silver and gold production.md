@@ -1,0 +1,212 @@
+# fresnillo increases silver and gold production
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Regulatory News. Live FRES RNS. Regulatory News ](https://raw.githubusercontent.com/orecrusher/image/main/114.jpg)</a>
+## Fresnillo Regulatory News. Live FRES RNS. Regulatory News 
+These increases were partially offset by lower ore grades at both Saucito and Fresnillo. Quarterly silver production remained flat vs. 3Q18 Quarterly gold production increased 14.6% when 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo posts 59% jump in interim profits on higher gold ](https://raw.githubusercontent.com/orecrusher/image/main/38.jpg)</a>
+## Fresnillo posts 59% jump in interim profits on higher gold 
+ · Fresnillo PLC reported a 59% jump in interim profits on higher gold and silver production and metal prices.. Underlying earnings (EBITDA) rose to 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo plc Challenging operational environment impacted ](https://raw.githubusercontent.com/orecrusher/image/main/62.jpg)</a>
+## Fresnillo plc Challenging operational environment impacted 
+ · We achieved record annual silver production of 61.8 moz and a very strong gold performance of 923 koz in 2018. Gold production surpassed the expectations we had at the beginning of the year. Despite the year on year increase in silver production we reported lower silver production than anticipated and were disappointed not to meet our long-term silver target of 65 moz.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![TOP NEWS: Fresnillo lifts dividend but 2021 ](https://raw.githubusercontent.com/orecrusher/image/main/188.jpg)</a>
+## TOP NEWS: Fresnillo lifts dividend but 2021 
+ · Analyst consensus has Fresnillo increasing its dividend again in 2021 to 38 cents. Production guidance for 2021 was left unchanged with silver output expected to be between 53.5 million and 59.5 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo reveals increased gold output ](https://raw.githubusercontent.com/orecrusher/image/main/180.jpg)</a>
+## Fresnillo reveals increased gold output 
+Fresnillo hopes to be producing 65m ounces of silver and 400000 ounces of gold from its mines in Mexico by 2018 and Jaime Lomelín chief executive has pledged to open a new mine or expand an 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Share Price (FRES) ](https://raw.githubusercontent.com/orecrusher/image/main/43.jpg)</a>
+## Fresnillo Share Price (FRES) 
+ · Fresnillo Plc also has over twenty active gold and silver exploration projects loed across Mexico and has signalled its intent to use IPO raised funds for expansion plans in Chile and Peru. The company's intention is to keep its top position as the world's most prominent producer of silver and it aims to double production of silver in the next decade whilst increasing gold production at 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo cuts gold production forecasts as Covid](https://raw.githubusercontent.com/orecrusher/image/main/129.jpg)</a>
+## Fresnillo cuts gold production forecasts as Covid
+ · An ounce of gold is worth over a third higher this year at £1470.35 while silver's value has increased by around 40 per cent. Consequently Fresnillo has seen its share price almost double this 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo forecasts fall in gold production due to ](https://raw.githubusercontent.com/orecrusher/image/main/10.jpg)</a>
+## Fresnillo forecasts fall in gold production due to 
+ · Fresnillo the world's biggest silver producer runs seven mines in Mexico. (Getty Images) Precious metals miner Fresnillo today said that gold production would fall 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Dull silver takes shine off Fresnillo ](https://raw.githubusercontent.com/orecrusher/image/main/147.jpg)</a>
+## Dull silver takes shine off Fresnillo 
+ · Investec analysts tried to stay positive and said the Penmont transaction offers more growth and diversity with the 2018 gold production target increased from 500koz to 750koz. Silver is now 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Rising Metal Prices Boost Fresnillo Profits](https://raw.githubusercontent.com/orecrusher/image/main/33.jpg)</a>
+## Rising Metal Prices Boost Fresnillo Profits
+ · Fresnillo's silver production in 1H21 was 27.5Moz representing a 2.7 percent increase compared to 1H20 records due to higher ore grade at San Julián and Juanicipio. The company's gold production in 1H21 was 428356oz 12.3 percent more than in 1H20 due to a higher volume processed at Herradura and higher ore grade at Saucito which was partially offset by lower ore grade at Ciénega 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Q2 revenue increases despite lower production ](https://raw.githubusercontent.com/orecrusher/image/main/27.jpg)</a>
+## Fresnillo Q2 revenue increases despite lower production 
+ · Fresnillo (OTCPK:FNLPF-3.3%) posted 1H revenues increased 5.2% Y/Y to $1.05B despite lower production driven by rising silver and gold prices.Average realized gold and silver prices increased 27 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![fresnillo increases silver and gold production](https://raw.githubusercontent.com/orecrusher/image/main/182.jpg)</a>
+## fresnillo increases silver and gold production
+Fresnillo reveals increased gold outputesnillo the London-listed Mexican silver and gold Fresnillo reveals increased gold Fresnillo's attributable gold production 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo reports increased silver and gold production ](https://raw.githubusercontent.com/orecrusher/image/main/109.jpg)</a>
+## Fresnillo reports increased silver and gold production 
+ · Miner Fresnillo has reported an uptick in production of silver gold lead and zinc in the third quarter of the year. Silver production was up 6.7 per cent gold was up 6.7 per cent gold was up
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![fresnillo increases silver and gold production ccrusher ](https://raw.githubusercontent.com/orecrusher/image/main/141.jpg)</a>
+## fresnillo increases silver and gold production ccrusher 
+ · fresnillo increases silver and gold production. The silver production increase was mainly as a result of higher ore grades at the Fresnillo mine as mining returned to higher grade areas; higher grades at Ciénega and increased ore throughput at Saucito Fresnillo profit increased in first half of 2016: FRES Fresnillo increases silver and gold.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Increases Silver And Gold Production](https://raw.githubusercontent.com/orecrusher/image/main/155.jpg)</a>
+## Fresnillo Increases Silver And Gold Production
+Fresnillo Shares Drop On Reduced Silver Outlook Inincreases in silver output following the ramp-up of second-phase operations at san julian were offset by a lower grade of ore at the sabinas mine the first phase of san julian and its eponymous fresnillo mine.Fresnillo said that higher grades boosted gold output in the second quarter pushing production up 4.6% on year to 233841 ounces.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo on track to produce 45](https://raw.githubusercontent.com/orecrusher/image/main/99.jpg)</a>
+## Fresnillo on track to produce 45
+Fresnillo increases silver and gold output. Fresnillo the world's largest primary silver miner has announced first half silver production results up almost 11% from the corresponding period of 2014. The company produced 23.9 Moz []
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Reports Higher Silver Gold Output Raises Gold ](https://raw.githubusercontent.com/orecrusher/image/main/177.jpg)</a>
+## Fresnillo Reports Higher Silver Gold Output Raises Gold 
+ · Fresnillo Plc.'s (LSE: FRES) second-quarter silver and gold production rose from a year ago and the company upped its guidance for gold output in 2015 officials announced Wednesday. The company is the world's largest primary silver producer with core operations in Mexico. Quarterly silver production of 11.3 million ounces was up 2.7% compared to the
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Increases Silver And Gold Production (OTCMKTS ](https://raw.githubusercontent.com/orecrusher/image/main/61.jpg)</a>
+## Fresnillo Increases Silver And Gold Production (OTCMKTS 
+ · In the first quarter 2015 Fresnillo increased its silver production by 21.2%. Gold production went up even more by 62.3%.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo cuts gold production forecasts after Mexican ](https://raw.githubusercontent.com/orecrusher/image/main/22.jpg)</a>
+## Fresnillo cuts gold production forecasts after Mexican 
+ · An ounce of gold is worth over a third higher this year at £1470.35 while silver's value has increased by around 40 per cent. Consequently Fresnillo has seen its share price almost double this 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![fresnillo increases silver and gold production](https://raw.githubusercontent.com/orecrusher/image/main/32.jpg)</a>
+## fresnillo increases silver and gold production
+ · Fresnillo increases gold silver production | Aug 4 2015 Mexican miner Fresnillo said H1's gold production was up 106% to 238M ounces and gold production was up 37% to 364000 ounc. Live Chat; Silver is Gold – Brian D Colwell
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo give update on Juanicipio project ](https://raw.githubusercontent.com/orecrusher/image/main/154.jpg)</a>
+## Fresnillo give update on Juanicipio project 
+ · Fresnillo's fourth quarter. At the end of January Fresnillo reported a quarterly rise in gold output however annual production has fallen short of expectations. Fresnillo told the market that they had produced 233744 ounces of gold in the fourth quarter of 2019 11% higher on the previous quarter and 0.7% higher year-on-year.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo's silver gold production rises ](https://raw.githubusercontent.com/orecrusher/image/main/54.jpg)</a>
+## Fresnillo's silver gold production rises 
+ · Compared with the second quarter of 2017 silver production rose 5.7% to 15.3 million ounces from 14.5 million ounces Fresnillo said. The company said silver output increased due to 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Investegate ](https://raw.githubusercontent.com/orecrusher/image/main/110.jpg)</a>
+## Investegate 
+ · Quarterly gold and silver production increased 5.0% and 2.1% vs. 4Q20 respectively as a result of a higher ore grade driven by improved dilution control partially offset by a lower volume of ore processed. Quarterly gold and silver production decreased 13.0% and 7.0% vs. 1Q20 respectively due to the expected lower ore grades year on year.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo increases gold silver production ](https://raw.githubusercontent.com/orecrusher/image/main/189.jpg)</a>
+## Fresnillo increases gold silver production 
+ · Fresnillo increases gold silver production. Mexican miner Fresnillo said H1's gold production was up 10.6% to 23.8M ounces and gold production was up 37% to 364000 ounces compared to 2014 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![TOP NEWS: Fresnillo interim profit soars on higher ](https://raw.githubusercontent.com/orecrusher/image/main/6.jpg)</a>
+## TOP NEWS: Fresnillo interim profit soars on higher 
+ · Fresnillo reaffirmed its production forecast and said it remains to track to hit its full-year production guidance of between 675000 and 725000 ounces of gold and between 53.5 million to 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo News Headlines. FRES Share News. Financial News ](https://raw.githubusercontent.com/orecrusher/image/main/40.jpg)</a>
+## Fresnillo News Headlines. FRES Share News. Financial News 
+Fresnillo News Headlines. FRES Share News. Financial News Articles for Fresnillo Plc Ord Usd0.50 updated throughout the day.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![fresnillo increases silver and gold production](https://raw.githubusercontent.com/orecrusher/image/main/153.jpg)</a>
+## fresnillo increases silver and gold production
+Fresnillo full year guidance unchanged as gold silver productionApr 25 2018 Fresnillo reported increased production across its main products including gold and silver in the first quarter of the year but confirmed the. Chat
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo ups gold and silver production in second quarter](https://raw.githubusercontent.com/orecrusher/image/main/154.jpg)</a>
+## Fresnillo ups gold and silver production in second quarter
+ · (Kitco News) - Fresnillo's quarterly attributable gold production increased 8.6% over Q2 2020 to 200163 oz and silver production (including Silve
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo cautious on 2021 outlook despite soaring profits ](https://raw.githubusercontent.com/orecrusher/image/main/143.jpg)</a>
+## Fresnillo cautious on 2021 outlook despite soaring profits 
+ · Despite the poor production figures higher precious metal prices in the year carried Fresnillo to increased profit and earnings. Average realized silver price increased in 2020 by 32% to $21.3 per ounce from $16.1 in 2019. Gold prices jumped by 26% to $1792.4 per ounce from $1418.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![FNLPF Stock Forecast Price News (Fresnillo) ](https://raw.githubusercontent.com/orecrusher/image/main/182.jpg)</a>
+## FNLPF Stock Forecast Price News (Fresnillo) 
+ · Fresnillo Plc is a holding company which engages in the production of gold and silver. It operates through the following segments: Fresnillo Saucito Cienega Herradura Soledad-Dipolos Noche Buena and San Julia. The Fresnillo and Saucito segments are loed in the state of Zaecas an underground silver mine.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo reports in](https://raw.githubusercontent.com/orecrusher/image/main/164.jpg)</a>
+## Fresnillo reports in
+ · Fresnillo reports in-line Q1 trading reiterates full-year guidance. Precious metals miner Fresnillo announced in-line first quarter production of gold and silver and reiterated its full-year 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo share price forecast for 2021: can it extend gains?](https://raw.githubusercontent.com/orecrusher/image/main/104.jpg)</a>
+## Fresnillo share price forecast for 2021: can it extend gains?
+ · Fresnillo enjoys increased profits driven by higher metal prices. Fresnillo is the world's largest primary silver producer and one of the largest gold producers in Mexico. It operates three gold and silver mines in Mexico and produces lead and zinc 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo beats gold and silver production guidance ](https://raw.githubusercontent.com/orecrusher/image/main/43.jpg)</a>
+## Fresnillo beats gold and silver production guidance 
+ · Mexican precious metals group Fresnillo beat forecasts with its silver and gold production in 2014 and said it expects to grow output this year.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Mining Weekly ](https://raw.githubusercontent.com/orecrusher/image/main/176.jpg)</a>
+## Mining Weekly 
+ · First-half attributable silver production of 27.5-million ounces increased by 2.7% year-on-year and first-half attributable gold production increased by 12.3% to 428 400 oz.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo reports sharp increase in profitability](https://raw.githubusercontent.com/orecrusher/image/main/16.jpg)</a>
+## Fresnillo reports sharp increase in profitability
+ · First-half attributable silver production of 27.5-million ounces increased by 2.7% year-on-year and first-half attributable gold production increased by 12.3% to 428 400 oz. Advertisement
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo ups gold and silver production in second quarter ](https://raw.githubusercontent.com/orecrusher/image/main/151.jpg)</a>
+## Fresnillo ups gold and silver production in second quarter 
+ · - Top primary silver producer and Mexico's largest gold producer Fresnillo announced today that its quarterly attributable gold production increased 8.6% over Q2 2020 to 200163 ounces due to a higher volume of ore processed at Herradura a higher ore grade at Saucito and increased volume of ore processed at Noche Buena.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Reached Record Silve ](https://raw.githubusercontent.com/orecrusher/image/main/111.jpg)</a>
+## Fresnillo Reached Record Silve 
+ · Fresnillo had total resources of 39.1 million ounces of gold and 2.2 million ounces of silver at the end of the year. Resources of gold increased 1.5% while silver decreased 5% from 2017. From its total mineral resources Fresnillo is guiding for between 58 million and 61 million ounces of silver and between 910000 and 930000 ounces of gold in 2019.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Gold price boosts Fresnillo profits; production ramps up ](https://raw.githubusercontent.com/orecrusher/image/main/129.jpg)</a>
+## Gold price boosts Fresnillo profits; production ramps up 
+Fresnillo the London-listed gold and silver miner more than doubled its first-half profits after increased production and rising metal prices helped the group's turnround plans.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo maintains guidance as silver production falls ](https://raw.githubusercontent.com/orecrusher/image/main/39.jpg)</a>
+## Fresnillo maintains guidance as silver production falls 
+ · Mining company Fresnillo kept its annual production guidance unchanged after reporting a fall in silver production but a rise in gold production in the first quarter of the year. Quarterly attributable silver production was down 2.4% and 4.5% in Q1 versus 4Q20 and 1Q20 respectively.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo cautious on 2021 outlook despite soaring profits ](https://raw.githubusercontent.com/orecrusher/image/main/176.jpg)</a>
+## Fresnillo cautious on 2021 outlook despite soaring profits 
+ · Pandemic-related measures resulted in total gold production for 2020 decreasing by 12.1% to 769600 ounces which was within the company's revised forecast.. Fresnillo total silver production 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Increases Silver And Gold Production](https://raw.githubusercontent.com/orecrusher/image/main/125.jpg)</a>
+## Fresnillo Increases Silver And Gold Production
+ · Fresnillo maintains fy silver guidance but reduces fy. Gold production increased 7.4 vs. 1q20 mainly due to a higher ore grade. quarterly gold and silver production decreased 11.4 and 15.9 vs. 2q19 respectively due to a lower volume of ore processed and ore grade following the depletion of the stockpile which resulted from the development activities in 2019 as described in prior quarters.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Engineering News ](https://raw.githubusercontent.com/orecrusher/image/main/112.jpg)</a>
+## Engineering News 
+ · First-half attributable silver production of 27.5-million ounces increased by 2.7% year-on-year and first-half attributable gold production increased by 12.3% to 428 400 oz.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo speeds up Juanicipio mine gold and silver ](https://raw.githubusercontent.com/orecrusher/image/main/42.jpg)</a>
+## Fresnillo speeds up Juanicipio mine gold and silver 
+ · Fresnillo on Monday brought forward the production date for its Juanicipio project in Mexico to mid-2020 at an additional cost of $45 million as 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo cuts gold production forecasts as Covid](https://raw.githubusercontent.com/orecrusher/image/main/192.jpg)</a>
+## Fresnillo cuts gold production forecasts as Covid
+ · Metals miner Fresnillo cuts gold production forecasts after its Mexican mines are hit by Covid Gold and silver are seen as safe investments in economically uncertain times The firm blamed a drop in workers at its Herradura mine for its lower forecasts Fresnillo's silver production guidance remains unchanged at 51-56m ounces By Harry Wise For []
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo shares fall following Q1 production report By ](https://raw.githubusercontent.com/orecrusher/image/main/102.jpg)</a>
+## Fresnillo shares fall following Q1 production report By 
+ · Attributable silver production is expected between 53.5 and 59.5 moz and gold production is expected between 675 and 725 koz. "Though the pandemic continues to present certain operational challenges Fresnillo has started 2021 well with Q1 operations in line with expectations and our full year guidance remains unchanged" Fresnillo CEO Octavio Alvídrez said in a statement .
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Increases Silver And Gold Production](https://raw.githubusercontent.com/orecrusher/image/main/60.jpg)</a>
+## Fresnillo Increases Silver And Gold Production
+Fresnillo Increases Silver And Gold Production. A rather unassuming exterior belying all the incredible machines within. For the full story behind this tour check out The rare and gorgeous sports cars of the Marconi Automotive Museum.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Increases Gold Production Guidance But Cuts ](https://raw.githubusercontent.com/orecrusher/image/main/168.jpg)</a>
+## Fresnillo Increases Gold Production Guidance But Cuts 
+Fresnillo Increases Gold Production Guidance But Cuts Silver Forecast. Mexican miner Fresnillo PLC on Tuesday boosted its gold output guidance for 2018 as both interim gold and silver production 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Reports Higher Silver Gold Output Raises Gold ](https://raw.githubusercontent.com/orecrusher/image/main/153.jpg)</a>
+## Fresnillo Reports Higher Silver Gold Output Raises Gold 
+ · Fresnillo said full-year 2015 gold production guidance was raised to between 715000 and 730000 from 670000 to 685000 previously. Full-year silver production remains on track at 45 million to 47 million ounces. "The increase in silver production was primarily driven by the ramp-up of
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo Benefited From Better Than Expected Silver ](https://raw.githubusercontent.com/orecrusher/image/main/81.jpg)</a>
+## Fresnillo Benefited From Better Than Expected Silver 
+ · Fresnillo PLC on Wednesday reported stronger silver production and weaker gold output for the second quarter. Here's what the Mexican miner had to say: On silver production: "Quarterly 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Fresnillo increases gold silver production by Western ](https://raw.githubusercontent.com/orecrusher/image/main/50.jpg)</a>
+## Fresnillo increases gold silver production by Western 
+Fresnillo increases gold silver production. In the spirit of the Olympics find beautiful interiors featuring gold silver and bronze. How they make Olympic medals. cnn. Meet the man who sculpted the molds for the gold silver and bronze gold medals that are being awarded at the Rio Olympics.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+## related articles:
+* [construction waste crusher for sale](construction%20waste%20crusher%20for%20sale.md)
+* [indian ultra idli grinder services london](indian%20ultra%20idli%20grinder%20services%20london.md)
+* [agrgregate and cement process](agrgregate%20and%20cement%20process.md)
+* [company is into grinding machines 2 wheel and ceramics](company%20is%20into%20grinding%20machines%202%20wheel%20and%20ceramics.md)
+* [alunite portable crusher manufacturer](alunite%20portable%20crusher%20manufacturer.md)
+* [duty of crop grinding mill imported in ethiopia](duty%20of%20crop%20grinding%20mill%20imported%20in%20ethiopia.md)
+* [machines that is making copper slag](machines%20that%20is%20making%20copper%20slag.md)
+* [vibrating feeder main technical parameter](vibrating%20feeder%20main%20technical%20parameter.md)
+* [all crushing plant in argentina](all%20crushing%20plant%20in%20argentina.md)
+* [gebr roller mill for cement and ore industry](gebr%20roller%20mill%20for%20cement%20and%20ore%20industry.md)

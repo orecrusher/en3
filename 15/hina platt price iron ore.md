@@ -1,0 +1,196 @@
+# hina platt price iron ore
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![china platt price iron ore ](https://raw.githubusercontent.com/orecrusher/image/main/2.jpg)</a>
+## china platt price iron ore 
+Platts Iron Ore Index or IODEX (IODBZ00) is a benchmark assessment of the spot price of physical iron ore. The assessment is based on a standard specifiion of iron ore fines with 62% iron 2.25% alumina 4% silica and 0.09% phosphorus among other gangue elements.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![platts cfr china price iron ore ](https://raw.githubusercontent.com/orecrusher/image/main/184.jpg)</a>
+## platts cfr china price iron ore 
+ · Platts Iron Ore Index assessments reflect the tradeable price of iron ore at 5.30pm Singapore/Beijing time (9.30 am GMT). The IODEX assessment is not origin specific and takes into account ores with iron content between 60-63.5% Prior to 2012 the spot market saw Indian material traded most actively; this shifted with Australia being the main source of spot medium grade fines 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![iron ore platt price cif china ](https://raw.githubusercontent.com/orecrusher/image/main/116.jpg)</a>
+## iron ore platt price cif china 
+iron ore platt price cif china normanmt.uk. iodex iron ore metals price assessment platts. view today s iron ore spot price and chart .market index tracks the 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Price Index](https://raw.githubusercontent.com/orecrusher/image/main/94.jpg)</a>
+## Price Index
+ · Custeel Iron Ore Price Index. Seaborne Iron Ore Price Index. 62% Fe fines. 58% Fe fines. 65% Fe fines. 62.5% Fe lumps premium. 65% Fe concentrates premium. 65% Fe pellets premium. Portside Iron Ore Price Index.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![platts iron ore price chart ](https://raw.githubusercontent.com/orecrusher/image/main/9.jpg)</a>
+## platts iron ore price chart 
+ Platts iron ore price chart. The price of sgx iron ore cfr china (62 fe fines) swap stood at $ 86.81. On the global price index on March 29 2019. The latest up trend changes. The quote is for delivery to Qingdao China. Iran iron ore prices fob are also for iron ore 62% this time is $ 50.7. Iron ore fines 62 fe price. More
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![platts iode iron ore price assessment e plained](https://raw.githubusercontent.com/orecrusher/image/main/192.jpg)</a>
+## platts iode iron ore price assessment e plained
+Platts Iron Ore Index assessments reflect the tradeable price of iron ore at 5.30pm Singapore/Beijing time (9.30 am GMT). The IODEX assessment is not origin specific and takes into account ores with iron content between 60-63.5% Prior to 2012 the spot market saw Indian material traded most actively; this shifted with Australia being the main source of spot medium grade fines material.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![China tariffs offset by rising Australian iron ore prices ](https://raw.githubusercontent.com/orecrusher/image/main/112.jpg)</a>
+## China tariffs offset by rising Australian iron ore prices 
+ · Boosted iron ore prices due to anxious markets are likely to help federal budget's bottom line Deloitte says. A 'fear tax' as well as concern that heavy rain may affect supply from Brazil 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![china platt price iron ore ](https://raw.githubusercontent.com/orecrusher/image/main/17.jpg)</a>
+## china platt price iron ore 
+china platt price iron ore. The Iron Ore Market ExplainedWhile demand in China soared the new production was slow to come online and spot prices for iron ore which had never exceeded $50 a tonne prior to 2008 soared as high as $190 per tonne in 2011.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore PRICE Today ](https://raw.githubusercontent.com/orecrusher/image/main/197.jpg)</a>
+## Iron Ore PRICE Today 
+ · Iron Ore Price: Get all information on the Price of Iron Ore including News Charts and Realtime Quotes.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron ore prices drop after China warns of 'excessive ](https://raw.githubusercontent.com/orecrusher/image/main/85.jpg)</a>
+## Iron ore prices drop after China warns of 'excessive 
+The physical iron ore price hit $188 a tonne on Monday down from a record high of $233 earlier this month according to a price assessment from SP Global Platts. The steelmaking commodity is a 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Platts ](https://raw.githubusercontent.com/orecrusher/image/main/41.jpg)</a>
+## Platts 
+Platts - Analysis: China Q1 steel output prices supports iron ore 17.04.2018 A number of steel and iron ore indiors have turned more bullish since March with iron ore prices recovering over the past week.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![The iron ore price is in freefall. What happens next ](https://raw.githubusercontent.com/orecrusher/image/main/51.jpg)</a>
+## The iron ore price is in freefall. What happens next 
+ · Iron ore prices slid to their lowest levels since April overnight as speculation about Chinese steel production cuts delivered a hit to the Pilbara's big iron ore miners. Prices fell 7.7% to US$169.30/t according to CommBank while Fastmarkets saw them down US12.14 to US$171.55/t this morning after a 5.6% drop in Dalian futures on Thursday.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore Steel Q3 China Outlook: Iron ore prices seen ](https://raw.githubusercontent.com/orecrusher/image/main/186.jpg)</a>
+## Iron Ore Steel Q3 China Outlook: Iron ore prices seen 
+ · The Platts 62% Fe benchmark averaged $103/mt CFR over June 1-25. A quarter of respondents expected their iron ore requirements to increase in Q3 while 29% anticipated less demand.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore Price Rally Blunts China's Trade Pressure ](https://raw.githubusercontent.com/orecrusher/image/main/112.jpg)</a>
+## Iron Ore Price Rally Blunts China's Trade Pressure 
+ · The price of iron ore—one of the world's most traded commodities—rose to $187.75 a metric ton on April 20 according to SP Global Platts. It has risen 17% over the past month extending a 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron](https://raw.githubusercontent.com/orecrusher/image/main/164.jpg)</a>
+## Iron
+MMi Daily Iron Ore Report (August 20) DCE iron ore futures closed slightly higher than yesterday although it hit the lowest 735 during trading period. PBF at Shandong port quoted as yuan/mt in the morning down 40yuan/mt over yesterday's deal price. Although DCE iron ore futures tend to be better since today's performance the 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Daily iron ore price update (Baltic bust) ](https://raw.githubusercontent.com/orecrusher/image/main/94.jpg)</a>
+## Daily iron ore price update (Baltic bust) 
+Daily iron ore price update (Baltic bust) The ferrous complex went a bit haywire yesterday with prices all over the joint. Spot jumped. Paper roared overnight. Steel fell: There's not much new 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore Platt Price Cif China ](https://raw.githubusercontent.com/orecrusher/image/main/92.jpg)</a>
+## Iron Ore Platt Price Cif China 
+Platts china iron ore fines and hrc fob black sea monthly prices 300 400 500 600 700 800 900.Iron ore platt price cif china related to platts mill scale china.Chinese steelmakers question platts pricing data on iron.Concerns about the accuracy of benchmarks published by price reporting agencies pras has spread to the iron ore markets.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![china platt price iron ore ](https://raw.githubusercontent.com/orecrusher/image/main/176.jpg)</a>
+## china platt price iron ore 
+The PLATTS iron ore price today for January 18 2019 showed a volatility of +1.2% for the iron ore price cfr china. The global iron ore price index has also been on the rise for the last two days January 21 and 22 but today's January 23rd is decreasing.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Chinese steel mills win domestic iron ore pricing in some ](https://raw.githubusercontent.com/orecrusher/image/main/186.jpg)</a>
+## Chinese steel mills win domestic iron ore pricing in some 
+ · Chinese steelmakers have succeeded in a push to include domestic iron ore price indices in some 2018 annual supply contracts with global miners four industry sources said as the world's top 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![hina platt price iron ore ](https://raw.githubusercontent.com/orecrusher/image/main/156.jpg)</a>
+## hina platt price iron ore 
+IODEX Iron Ore Price assessment SP Global Platts. Platts Iron Ore Index assessments reflect the tradeable price of iron ore at 530pm SingaporeBeijing time 930 am GMT The IODEX assessment is not origin specific and takes into account ores with iron content between 60635 Prior to 2012 the spot market saw Indian material traded most actively this shifted with Australia being the main source of 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron](https://raw.githubusercontent.com/orecrusher/image/main/104.jpg)</a>
+## Iron
+ · Iron ore logged its highest price on record Thursday buoyed by insatiable demand for steel in China. The benchmark SP Global Platts IODEX the spot price of 62% iron- 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore Price ](https://raw.githubusercontent.com/orecrusher/image/main/153.jpg)</a>
+## Iron Ore Price 
+Iron Ore Price Outlook Iron ore prices continued to lose ground over the past month amid increased supply in the global market. On 6 November the benchmark iron ore 62% Fe import price including freight and insurance at the Chinese port of Tianjin traded at USD 118.5 per metric ton (mt) which was 1.7% lower than on the same day in September.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore ](https://raw.githubusercontent.com/orecrusher/image/main/189.jpg)</a>
+## Iron Ore 
+Iron Ore (Fe) is mined in around 50 countries worldwide and used to make steel (buildings cars white goods etc.). Global economic growth is the primary factor that drives its supply and demand. When economies are growing the need for steel in construction increases which drives the price up.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Platts Steel Markets Daily Now Reporting Prices of Iron ](https://raw.githubusercontent.com/orecrusher/image/main/108.jpg)</a>
+## Platts Steel Markets Daily Now Reporting Prices of Iron 
+LONDON June 18 /Xinhua-PRNewswire/ -- Platts Steel Markets Daily Now Reporting Prices of Iron Ore Delivered to China
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![China Platt Price Iron Ore ](https://raw.githubusercontent.com/orecrusher/image/main/48.jpg)</a>
+## China Platt Price Iron Ore 
+Iron ore platt price cif china. iron ore platt china december perkinspreschool Jul 1 2018 With Chinas economy under threat iron ore prices seen sliding further: 1 market China will average $61 a tonne in July to December down from high grade iron ore supply said Jeremy Platt from UK consultancy MEPS.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore Platt Price Cif China](https://raw.githubusercontent.com/orecrusher/image/main/39.jpg)</a>
+## Iron Ore Platt Price Cif China
+COMMODITY Iron Ore Lumps ORIGIN GRADEiron ore 60Fe above QUANTITY 50000MT200.000MT DESTINATION PORT Qingdao PortChina LOADING PORT As per supplier PRICE 1Base Reference Price The Base Reference Price shall be the price referenced in the Platts IODEX 62 Index CFR China on the day prior to the LC being opened by the Buyer. 2The .
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Platts Iron Ore methodology — the global iron ore ](https://raw.githubusercontent.com/orecrusher/image/main/45.jpg)</a>
+## Platts Iron Ore methodology — the global iron ore 
+The price for iron ore used in this study is the iron ore spot price based on Platts Iron Ore IndexThe Platts Iron Ore Index is a benchmark assessment of the spot price of physical iron ore concentrate which is based on a standard specifiion of iron ore fines with 62% Fe 2.25% alumina 4% silica and 0.09% phosphorus among other gangue.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Ferrous Price Trends Market Update ](https://raw.githubusercontent.com/orecrusher/image/main/167.jpg)</a>
+## Ferrous Price Trends Market Update 
+ · Niki joined SP Global Platts's iron ore pricing team in 2017 as a senior analyst. Before that Niki has 7 years working experience in metal industry. She has been a non-ferrous trader in large international commodity trading houses such as Trafigura and Gunvor.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![iron ore platts price chart ](https://raw.githubusercontent.com/orecrusher/image/main/56.jpg)</a>
+## iron ore platts price chart 
+Iron-ore prices hit record high with appetite for steel 'far beyondMay 6 2021 The benchmark SP Global Platts IODEX the spot price of 62% iron- fines delivered to China was assessed at a record high of $202.65 per dry
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron ore price tumbles on gloomy China demand outlook ](https://raw.githubusercontent.com/orecrusher/image/main/20.jpg)</a>
+## Iron ore price tumbles on gloomy China demand outlook 
+Spot iron ore traded below $200 a tonne on Thursday for the first time since May 28 SteelHome consultancy data showed. "Prices fell as iron ore demand weakens in the face of policy to reduce China's steel output as a means to cut emissions" Commonwealth Bank of 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![china platt price iron ore ](https://raw.githubusercontent.com/orecrusher/image/main/79.jpg)</a>
+## china platt price iron ore 
+china platt price iron ore - Grinding Mill China The iron occur in Fe-mineral ores contains impurities of Phosphorus sulphur and high alkali as well as impregnations of waste rock. To produce a metallurgy treatable concentrate the ore has to be grind for mineral liberation enriched for concentration and dewatered for transportation.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore 62% Fe CFR North China (Platts) Futures Quotes ](https://raw.githubusercontent.com/orecrusher/image/main/167.jpg)</a>
+## Iron Ore 62% Fe CFR North China (Platts) Futures Quotes 
+IRON ORE 62% FE CFR NORTH CHINA (PLATTS) FUTURES - QUOTES Globex. Settlement prices on instruments without open interest or volume are provided for web users only and are not published on Market Data Platform (MDP). These prices are not based on market activity. No Data Available:
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![» iron ore platts price today – Iron Ore 62% Fe](https://raw.githubusercontent.com/orecrusher/image/main/93.jpg)</a>
+## » iron ore platts price today – Iron Ore 62% Fe
+The iron ore price of 62 percent of the magnetite delivered to the fob ports of Iran is $ 61.7 for April 17 2019. Iron Ore 62% Fe is 58.2. Iron ore price 58 fe is also announced at 52.8. The latest changes on Monday April 15th have seen an increase of $ 3 in iron ore concentrate and $ 1 in iron ore prices. Comments are closed.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore Platt Price Cif China ](https://raw.githubusercontent.com/orecrusher/image/main/73.jpg)</a>
+## Iron Ore Platt Price Cif China 
+Iron Ore Platt Price Cif China. Sell iron ore fe 62 minid italy manufacturer supplier exporter gvmcif price usd x mt price platt - price will be reviewed every 3 months price platts we have direct seller offer from a mine in south america for copper ore min 18 -above for any quantity up to 100000mt x 12 months with re fob or cif.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore Prices News and Analysis ](https://raw.githubusercontent.com/orecrusher/image/main/179.jpg)</a>
+## Iron Ore Prices News and Analysis 
+ · Iron Ore Prices News and Analysis. SteelOrbis is the primary information source preferred by leading iron ore producers for its up-to-date iron ore prices iron ore market analyses and news as it closely follows the main iron ore markets such as Australia Brazil and China.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Platts Iodex Iron Ore Price Assessment Explained](https://raw.githubusercontent.com/orecrusher/image/main/24.jpg)</a>
+## Platts Iodex Iron Ore Price Assessment Explained
+Platts Iodex Iron Ore Price Assessment Explained. Platts iron ore index or iodex iodbz00 is a benchmark assessment of the spot price of physical iron ore the assessment is based on a standard specifiion of iron ore fines with 62 iron 225 alumina 4 silica and 009 phosphorus among other gangue elements.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![iron ore platt price cif china ](https://raw.githubusercontent.com/orecrusher/image/main/138.jpg)</a>
+## iron ore platt price cif china 
+The spot price of a tonne of iron ore and coking coal essential materials in steelmaking delivered on a cost and freight delivered basis to China reached near-parity on Aug. 4 2020 according to SP Global Platts a division of SP Global that provides information on energy and commodities markets.Iron Ore | Today's Spot Price Charts - Market IndexThe iron ore spot price became a mature 
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Platts Iron Ore Concentrate 65 Prices ](https://raw.githubusercontent.com/orecrusher/image/main/137.jpg)</a>
+## Platts Iron Ore Concentrate 65 Prices 
+Price Of Iron Ore Concentrate. Iron Ore 62 FE 2010 2020 Data 2021 2022 Forecast Iron Ore 62 fe increased 29 26 USD MT or 31 61 since the beginning of 2020 according to trading on a c Large scale crushing screening milling plants Offer efficient cost effective services for you Price Of Iron Ore Concentrate. View MoreIron Ore Platts Price Today
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![DBS: Iron ore prices plummet signalling bearish commodity ](https://raw.githubusercontent.com/orecrusher/image/main/201.jpg)</a>
+## DBS: Iron ore prices plummet signalling bearish commodity 
+ · Iron ore prices collapsed on China's production cut and weaker demandSteel prices to follow suit industrial metal prices to turn bearishSupply chain disruption due to Covid-19 variantRecommend to wait until metal prices stabilise Iron ore prices collapsed Platt's 62% Fe iron ore prices (CFR North China) have declined to $130.2/dry mt CFR North China on Aug.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![China to Scale Up Iron Ore Mining as Prices Hit New High ](https://raw.githubusercontent.com/orecrusher/image/main/7.jpg)</a>
+## China to Scale Up Iron Ore Mining as Prices Hit New High 
+ · The Platts 62 Percent Iron Ore Index a pricing benchmark reached USD193.65 yesterday a record high largely caused by choked supply from India one of the world's key producers as the country is overcome by a devastating wave of the Covid-19 pandemic.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![China Iron ore spot price China Iron ore Daily prices ](https://raw.githubusercontent.com/orecrusher/image/main/16.jpg)</a>
+## China Iron ore spot price China Iron ore Daily prices 
+The Monitor for China Iron ore Prcies and China Iron ore Daily Prices is provided by Sunsirs China Commodity Data Group. SunSirs--China Commodity Data Group. Member ID: password: Join Now! Home. Bulk Commodity Index. Commodity News. Spot Price.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Iron Ore 62% Fe CFR China (TSI) Swa price information ](https://raw.githubusercontent.com/orecrusher/image/main/125.jpg)</a>
+## Iron Ore 62% Fe CFR China (TSI) Swa price information 
+ · Iron Ore 62% Fe CFR China (TSI) Swa. Actions. Add to watchlist. Price (USD) 217.58. Today's Change 5.12 / 2.41%. Shares traded 0.00. 1 Year change +114.28%. 52 week range 164.44 - 211.80. Data delayed at least 30 minutes as of Jul 01 2021 14:59 BST.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![iron ore platt price cif china ](https://raw.githubusercontent.com/orecrusher/image/main/53.jpg)</a>
+## iron ore platt price cif china 
+Learn how Platts assesses the spot market price of physical iron ore (IODEX) and how you can access daily metals prices news and market commentary. China to Launch Iron Ore Price Index - China Briefing News Next Article China Total Tax Burden Second Highest in World » China to Launch Iron Ore Price IndexPosted on September 26 2011 by China .
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![China iron ore pellet: Prices stable ](https://raw.githubusercontent.com/orecrusher/image/main/197.jpg)</a>
+## China iron ore pellet: Prices stable 
+ · China#39;s seaborne pellet prices were little changed with demand supported by sintering restrictions in parts of China and a seasonal shortage of domestic concentrate supplies.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Chinese steelmakers question Platts pricing data on iron ](https://raw.githubusercontent.com/orecrusher/image/main/117.jpg)</a>
+## Chinese steelmakers question Platts pricing data on iron 
+ · Concerns about the accuracy of benchmarks published by price reporting agencies (PRAs) has spread to the iron ore markets with Chinese steelmakers questioning the reliability of indices from Platts.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">![Daily Steel Prices ](https://raw.githubusercontent.com/orecrusher/image/main/102.jpg)</a>
+## Daily Steel Prices 
+Benchmark price assessments. Platts Steel Market Daily is the only publiion that houses both Platts IODEX and TSI 62% Fe iron ore price benchmarks as well as over 80 key price assessments published daily and weekly for the steel coking coal ferrous scrap and iron ore markets.
+<a href="//whatsapp.shibangsoft.com/WhatsApp.php" target="_blank"><img src="https://raw.githubusercontent.com/orecrusher/image/main/whatsapp.png">Whatsapp</a>             <a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://crushertrading.com/" target="_blank">Get Price</a>
+## related articles:
+* [how much does a pe series jaw crusher cost](how%20much%20does%20a%20pe%20series%20jaw%20crusher%20cost.md)
+* [metrotrak track jaw crusher](metrotrak%20track%20jaw%20crusher.md)
+* [hammer mill industrial scale](hammer%20mill%20industrial%20scale.md)
+* [screw conveyor supplier in south africa](screw%20conveyor%20supplier%20in%20south%20africa.md)
+* [mpaction factor crsuher run volume](mpaction%20factor%20crsuher%20run%20volume.md)
+* [what is a magnetic conveyor](what%20is%20a%20magnetic%20conveyor.md)
+* [list of stone crusher in himachal](list%20of%20stone%20crusher%20in%20himachal.md)
+* [rock crusher in india price](rock%20crusher%20in%20india%20price.md)
+* [para la maquina trituradora de oro](para%20la%20maquina%20trituradora%20de%20oro.md)
+* [chinese activated bleaching earth plant equipment supplier](chinese%20activated%20bleaching%20earth%20plant%20equipment%20supplier.md)
